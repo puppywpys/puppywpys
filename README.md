@@ -3,7 +3,7 @@
 <p align="center">
  $\color{#F1D9D0}{sunday}$ 󠀠 󠀠 $\color{#F1D9D0}{fictkin}$ 
   
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       $\color{#F1D9D0}{heavy}$    $\color{#F1D9D0}{blade/phainon}$     $\color{#F1D9D0}{fictkin}$
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ       $\color{#F1D9D0}{heavy}$     $\color{#F1D9D0}{blade/phainon}$     $\color{#F1D9D0}{fictkin}$
 
   
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 󠀠 󠀠 [prns.page](https://en.pronouns.page/@puppywpys)
