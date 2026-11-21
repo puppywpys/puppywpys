@@ -3,4 +3,6 @@
 <p align="center">
 ㅤㅤㅤ $\color{#F1D9D0}{sunday}$ 󠀠 󠀠 $\color{#F1D9D0}{fictkin}$                                                                                          
   $\color{#F1D9D0}{heavy}$
- ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 󠀠 󠀠 [prns.page](https://en.pronouns.page/@puppywpys)
+
+  
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 󠀠 󠀠 [prns.page](https://en.pronouns.page/@puppywpys)
