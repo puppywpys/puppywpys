@@ -1,7 +1,7 @@
 <p align="center">
   <img width="555" height="450" alt="Untitled175_20260925093803" src="https://github.com/user-attachments/assets/dcabe3ce-4a44-4e70-a491-2ef87bc2376e" />
 <p align="center">
-ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ $\color{#F1D9D0}{we're}$ 󠀠 󠀠 $\color{#F1D9D0}{so}$ 󠀠 󠀠 󠀠 $\color{#F1D9D0}{anxious}$ 󠀠 󠀠 $\color{#F1D9D0}{to}$ 󠀠 󠀠 $\color{#F1D9D0}{be}$ 󠀠 󠀠 $\color{#F1D9D0}{together}$ 
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ 󠀠 $\color{#F1D9D0}{together}$ 󠀠 󠀠 $\color{#F1D9D0}{in}$ 󠀠 󠀠 󠀠 $\color{#F1D9D0}{death}$ 󠀠 󠀠 
+ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ ㅤㅤㅤㅤㅤㅤㅤ $\color{#F1D9D0}{sunday}$ 󠀠 󠀠 $\color{#F1D9D0}{fictkin}$ 󠀠 󠀠 󠀠 $\color{#F1D9D0}{heavy}$ 󠀠 󠀠 $\color{#F1D9D0}{phainon/blade}$ 󠀠 󠀠 $\color{#F1D9D0}{fictkin}$ 
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ ㅤ 󠀠 $\color{#F1D9D0}{yumes}$ 󠀠 󠀠 $\color{#F1D9D0}{dni}$ 󠀠 󠀠 󠀠 $\color{#F1D9D0}{pls!!}$ 󠀠 󠀠 
   
  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 󠀠 󠀠 󠀠 󠀠 󠀠 󠀠 󠀠 [prns.page](https://en.pronouns.page/@puppywpys)
