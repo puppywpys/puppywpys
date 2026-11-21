@@ -1,9 +1,9 @@
 <p align="center">
-  <img width="555" height="450" alt="Untitled175_20260925093803" src="https://github.com/user-attachments/assets/dcabe3ce-4a44-4e70-a491-2ef87bc2376e" />
+  <img width="500" height="500" alt="IMG_5535" src="https://github.com/user-attachments/assets/bae95e2c-31dd-4331-9c6b-52639932027c" /
 <p align="center">
- $\color{#F1D9D0}{sunday}$ 󠀠 󠀠 $\color{#F1D9D0}{fictkin}$ 
+ $\color{#CDABA2}{sunday}$ 󠀠 󠀠 $\color{#CDABA2}{fictkin}$ 
   
-  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ             $\color{#F1D9D0}{heavy}$    $\color{#F1D9D0}{blade/phainon}$     $\color{#F1D9D0}{fictkin}$
+  ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ             $\color{#F1D9D0}{heavy}$    $\color{#CDABA2}{blade/phainon}$     $\color{#CDABA2}{fictkin}$
 
   
   ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ 󠀠 󠀠 [prns.page](https://en.pronouns.page/@puppywpys)
